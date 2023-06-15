@@ -7,7 +7,7 @@ https://www.youtube.com/
 https://www.vimeo.com/
 https://www.xvideos.com/
 https://www.xhamster.com/
-https://www.pornnit.com/
+https://www.pornnits.com/
 https://www.xnxx.com/
 
 Soon source code will available and you can launch erotic metasearch on your own website.
